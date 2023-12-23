@@ -9,4 +9,4 @@ NewJeans debuted on July 22, 2022, with the single "Attention", their first numb
 
 Their second EP, Get Up, peaked at number one on the US Billboard 200 and sold over one million copies in South Korea. Its lead single, "Super Shy", became the group's highest-charting single on the Billboard Global 200 (number two), the US Billboard Hot 100, and the UK Singles Chart. NewJeans has received rookie awards and were featured in listicles such as Time's Next Generation Leaders and Forbes's Korea Power Celebrity 40. Aside from music, NewJeans has sponsored and collaborated with several brands, including Musinsa [ko], Levi's, Coca-Cola, LG Electronics, Apple Inc., and McDonald's Korea.
 
-type theme: jekyll-theme-minimal
+
