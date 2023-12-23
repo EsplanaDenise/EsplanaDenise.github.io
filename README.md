@@ -1,8 +1,7 @@
-![image](https://github.com/EsplanaDenise/EsplanaDenise.github.io/assets/150876824/52252904-c129-44ea-bdc5-1566f8cf7072)# EsplanaDenise.github.io
 Denise Chloe T. Esplana
 
 𝓝𝓮𝔀𝓙𝓮𝓪𝓷𝓼
-
+![image](https://github.com/EsplanaDenise/EsplanaDenise.github.io/assets/150876824/52252904-c129-44ea-bdc5-1566f8cf7072)# EsplanaDenise.github.io
 
 NewJeans (Korean: 뉴진스; RR: Nyujinseu) is a South Korean girl group formed by ADOR. The group is composed of five members: Minji, Hanni, Danielle, Haerin, and Hyein. NewJeans is known for their girl next door image and 1990s- and 2000s-indebted pop and R&B songs with influences of various dance and club styles.
 
