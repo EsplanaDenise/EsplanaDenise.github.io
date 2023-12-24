@@ -1,5 +1,3 @@
-Denise Chloe T. Esplana
-
 NewJeans
 ![image](https://github.com/EsplanaDenise/EsplanaDenise.github.io/assets/150876824/52252904-c129-44ea-bdc5-1566f8cf7072)
 
