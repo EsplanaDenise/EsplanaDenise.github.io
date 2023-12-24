@@ -11,7 +11,7 @@ NewJeans' music spans genres such as R&B, electropop, and hip hop. It is charact
 
 NewJeans' music is mainly produced by South Korean singers 250 and Park Jin-su (also known as FRNK), while the members often participate in songwriting. As the executive producer, Min Hee-jin selects all NewJeans' songs and is responsible for the recording process. Regarding the group's debut EP, Min said she "wanted to break the tacit formula of K-pop and make an album with the music I want". Min disliked "high-pitched parts, awkward raps that suddenly appear, and singing methods that feel uniform" and chose to record without guide vocals, allowing the members to develop their own singing styles. Pearce argued that NewJeans' frequent collaborations with certain producers brought forth a cohesive discography with distinct identity and aesthetic. Four of the members have been credited for songwriting at least once: Danielle for "Attention", "Super Shy", "Cool with You" and "ASAP", Hanni for "OMG" and "Hype Boy", Minji for "Ditto" and Haerin for "New Jeans".
 
-Members
+MEMBERS
 
 Minji (민지)
 
