@@ -17,7 +17,7 @@ Minji (민지),
 Hanni (하니),
 Danielle (다니엘),
 Haerin (해린),
-Hyein (혜인),
+Hyein (혜인)
 
 
 SONG RECOMMENDATION
