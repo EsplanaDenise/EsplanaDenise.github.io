@@ -25,5 +25,4 @@ Haerin (해린)
 
 Hyein (혜인)
 
-https://www.youtube.com/embed/js1CtxSY38I?si=eLy1SDyLBowDTTUK
 <iframe width="560" height="315" src="https://www.youtube.com/embed/js1CtxSY38I?si=eLy1SDyLBowDTTUK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
