@@ -19,11 +19,21 @@ Minji (민지)
 
 Hanni (하니)
 
+![NwwygBtji5NPwfUG3tCI](https://github.com/EsplanaDenise/EsplanaDenise.github.io/assets/150876824/1fe73bfd-25d4-4189-82f8-d896d6b826e8)
+
 Danielle (다니엘)
+
+![B7mfkmem67r6XQUAScCy](https://github.com/EsplanaDenise/EsplanaDenise.github.io/assets/150876824/0cf1ef80-e725-4987-9030-651b16483fbe)
+
 
 Haerin (해린)
 
+![S9pCIFcoBkuBm2SHIvLG](https://github.com/EsplanaDenise/EsplanaDenise.github.io/assets/150876824/3d3e929b-ae3d-44a6-97ef-2ec73f1531bc)
+
+
 Hyein (혜인)
+
+![HAxxo9C0uELcv1LTFpju](https://github.com/EsplanaDenise/EsplanaDenise.github.io/assets/150876824/09f70dc6-86ef-483c-813b-e20c3ebd287d)
 
 
 SONG RECOMMENDATION
