@@ -14,6 +14,7 @@ NewJeans' music is mainly produced by South Korean singers 250 and Park Jin-su (
 MEMBERS
 
 Minji (민지)
+
 ![QaPlIPTIMP8i7CNLNHsD](https://github.com/EsplanaDenise/EsplanaDenise.github.io/assets/150876824/018af299-b88f-4af8-9305-ecc517bf2cd6)
 
 Hanni (하니)
